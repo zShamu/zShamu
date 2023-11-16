@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @zShamu
-- 👀 I’m interested in Cybersecurity, Technologies and Iron Man
+- 👀 I’m interested in Cybersecurity, Technology and Iron Man
 - 🌱 I’m currently learning Cybersecurity
